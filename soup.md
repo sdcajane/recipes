@@ -1,4 +1,4 @@
-Ingredients:
+Ingredients for tomato soup:
 
 - Tomato
 - Orion
